@@ -13,11 +13,11 @@ Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr
 
 </div>
 
-> Putting this out here as well: In 'n out of Pony Town - meaning I'm either gone for months OR I get on everday, real cray-cray. I'm critical with the media I consume, I write whatever there is to say and what I absoutely fucking hate 'bout every bit of it.	‎ I curse in every sentence I construct 'n may spout out stuff that might strike as odd n outta the line but don't take it to heart! This is just how I talk 'n might come off as aggressive at times but I pinky promise you that I'm pretty easy peasy lemony squeezy to get along with.	‎ ![SEPH](https://64.media.tumblr.com/c33a6bf9517e769f417f6cc37067a935/77e4b9db38132632-3b/s75x75_c1/c6d83cbe4629295902d5476197acf2b534e842c8.gif) 
+> Putting this out here as well: In 'n out of Pony Town - meaning I'm either gone for months OR I get on everday, real cray-cray. I'm critical with the media I consume, I write whatever there is to say and what I absoutely fucking hate 'bout every bit of it.	‎ ![SEPH](https://64.media.tumblr.com/c33a6bf9517e769f417f6cc37067a935/77e4b9db38132632-3b/s75x75_c1/c6d83cbe4629295902d5476197acf2b534e842c8.gif) 	‎I curse in every sentence I construct 'n may spout out stuff that might strike as odd n outta the line but don't take it to heart! This is just how I talk 'n might come off as aggressive at times but I pinky promise you that I'm pretty easy peasy lemony squeezy to get along with.
  
 <div align="center"> 
   
-![GOCRAZYGOSTUPID](https://64.media.tumblr.com/6257721db39253b5e4685a5c8d11c3d1/0d457bc3d59e853c-fe/s75x75_c1/4ee8ff28bd22a90601be2958825fd7f09c29b69e.gifv) ![SWIRL](https://enchantments.carrd.co/assets/images/gallery01/ea3bd16e.gif?v=5c8435d5)	‎ Go absolute batshit-ballsy-nutso on my atabook! ↓
+![GOCRAZYGOSTUPID](https://64.media.tumblr.com/6257721db39253b5e4685a5c8d11c3d1/0d457bc3d59e853c-fe/s75x75_c1/4ee8ff28bd22a90601be2958825fd7f09c29b69e.gifv)	‎ Go absolute batshit-ballsy-nutso on my atabook! ![SWIRL](https://enchantments.carrd.co/assets/images/gallery01/ea3bd16e.gif?v=5c8435d5) ↓
 
 ‎ **[![SONADOW](https://supplies.ju.mp/assets/images/gallery14/a9188e60.jpg?v=6a50b904)](https://gekko.atabook.org/)** 
 
