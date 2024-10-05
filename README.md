@@ -13,7 +13,7 @@ Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr
 
 </div>
 
-> Putting this out here as well: In 'n out of Pony Town - meaning I'm either gone for months OR I get on everday, real cray-cray. I'm critical with the media I consume, I write whatever there is to say and what I absoutely fucking hate 'bout every bit of it.	‎ ![SEPH](https://64.media.tumblr.com/c33a6bf9517e769f417f6cc37067a935/77e4b9db38132632-3b/s75x75_c1/c6d83cbe4629295902d5476197acf2b534e842c8.gif) 	‎I curse in every sentence I construct 'n may spout out stuff that might strike as odd n outta the line but don't take it to heart! This is just how I talk 'n might come off as aggressive at times but I pinky promise you that I'm pretty easy peasy lemony squeezy to get along with.
+> Putting this out here as well: In 'n out of Pony Town - meaning I'm either gone for months OR I get on everday, real cray-cray. I'm critical with the media I consume, I write whatever there is to say and what I absoutely fucking hate 'bout every bit of it. ‎I curse in every sentence I construct 'n may spout out stuff that might strike as odd n outta the line but don't take it to heart! This is just how I talk 'n might come off as aggressive at times but I pinky promise you that I'm pretty easy peasy lemony squeezy to get along with.
  
 <div align="center"> 
   
