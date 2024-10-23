@@ -10,8 +10,7 @@ She/Him prns	‎ ![GIN](https://pixels.crd.co/assets/images/gallery68/1445305c.g
 
 Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr.com/4e86ac2609a822fcc0d27b8eb2ff7904/979aeaa541231801-fa/s75x75_c1/572dc7f4234698beac69108dac3c802eaf0823c7.gifv) Da basic yaddy-yada, Under 18, white peeps 'n what-the-fuck-ever. I'll just block you if you annoy the living shit out my guts ![E](https://pixels.crd.co/assets/images/gallery33/352b57c7.gif?v=99d3974e)
 
-![AND](https://pix.crd.co/assets/images/gallery01/a820e547.gif?v=bae75af9) **Just so you know,** 
-*interests* varies tons of medias.	‎ ![DOMO](https://nustufff.carrd.co/assets/images/gallery22/0f412000.gif?v=5bcf7cb9)	‎ Don't wanna list all of it but as of now I'm real biggie into Haikyuu!! with a bit of Valorant (#GEKKO	‎ ![HEART](https://watermelon.crd.co/assets/images/gallery02/05d17eb5.gif?v=6332de85) Me 'n Iso spray her coochie with fucking KABOOM) 'n Pierce the Veil to the side! Everything else, I'm just rocking with it.	‎ 	‎‎![STAR](https://github.com/user-attachments/assets/42621151-300b-4def-be88-558fc5d118ed) ![YUI](https://pixels.crd.co/assets/images/gallery148/ea0e7586.gif?v=99d3974e)
+![AND](https://pix.crd.co/assets/images/gallery01/a820e547.gif?v=bae75af9) **Just so you know,** *interests* varies tons of medias.	‎ ![DOMO](https://nustufff.carrd.co/assets/images/gallery22/0f412000.gif?v=5bcf7cb9)	‎ Don't wanna list all of it but as of now I'm real biggie into Haikyuu!! and Transformers with a bit of Valorant (#GEKKO	‎ ![HEART](https://watermelon.crd.co/assets/images/gallery02/05d17eb5.gif?v=6332de85) Me 'n Iso spray her coochie with fucking KABOOM) 'n Pierce the Veil to the side! Everything else, I'm just rocking with it.	‎ 	‎‎![STAR](https://github.com/user-attachments/assets/42621151-300b-4def-be88-558fc5d118ed) ![YUI](https://pixels.crd.co/assets/images/gallery148/ea0e7586.gif?v=99d3974e)
 
 </div>
 
