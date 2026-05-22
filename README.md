@@ -1,5 +1,7 @@
 <div align="center"> 
 
+![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=MEOW&abbreviated=true)
+
 [![MICHIKAWA](https://pbs.twimg.com/media/GMpGecPbgAAyW_l?format=png&name=small)](https://x.com/tei03/status/1786318051052556662)
 
 [(c)](https://x.com/tei03)
@@ -19,7 +21,5 @@ Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr
 <div align="center"> 
 
 [![YORU](https://pbs.twimg.com/media/GWAtvy-XQAI1Dxd?format=jpg&name=small)](https://x.com/astrodid/status/1828511885295341893)
-
-![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=MEOW&abbreviated=true)
 
 </div>
