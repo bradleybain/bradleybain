@@ -22,4 +22,8 @@ Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr
 
 [![YORU](https://pbs.twimg.com/media/GWAtvy-XQAI1Dxd?format=jpg&name=small)](https://x.com/astrodid/status/1828511885295341893)
 
+![SWIRL](https://enchantments.carrd.co/assets/images/gallery01/ea3bd16e.gif?v=5c8435d5)	‎ Go absolute batshit-ballsy-nutso on my atabook! ↓ 	‎ ![KAGS](https://yokai.crd.co/assets/images/gallery28/18a46261.gif?v=b4df531c)
+
+‎ **[![SONADOW](https://supplies.ju.mp/assets/images/gallery14/a9188e60.jpg?v=6a50b904)](https://gekko.atabook.org/)** 
+
 </div>
