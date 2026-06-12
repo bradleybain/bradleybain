@@ -1,11 +1,5 @@
 <div align="center"> 
 
-![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=MEOW&abbreviated=true)
-
-![SWIRL](https://enchantments.carrd.co/assets/images/gallery01/ea3bd16e.gif?v=5c8435d5)	‎ Go absolute batshit-ballsy-nutso on my atabook! ↓ 	‎ ![KAGS](https://yokai.crd.co/assets/images/gallery28/18a46261.gif?v=b4df531c)
-
-‎ **[![SONADOW](https://supplies.ju.mp/assets/images/gallery14/a9188e60.jpg?v=6a50b904)](https://gekko.atabook.org/)** 
-
 [![MICHIKAWA](https://pbs.twimg.com/media/GMpGecPbgAAyW_l?format=png&name=small)](https://x.com/tei03/status/1786318051052556662)
 
 [(c)](https://x.com/tei03)
@@ -24,7 +18,7 @@ Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr
 ⠀
 <div align="center"> 
 
-[![DPAX](https://pbs.twimg.com/media/Gf2eyHeWcAAhOSr?format=jpg&name=small)](https://x.com/vemmies/status/1872830755518464396?s=20)
+[![YORU](https://pbs.twimg.com/media/GWAtvy-XQAI1Dxd?format=png&name=small)](https://x.com/astrodid/status/1828511885295341893?s=20)
 
 
 <details>
