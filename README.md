@@ -1,5 +1,7 @@
 <div align="center"> 
 
+![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=Cigs_In_My_Tummy&abbreviated=true)
+
 [![MICHIKAWA](https://pbs.twimg.com/media/GMpGecPbgAAyW_l?format=png&name=small)](https://x.com/tei03/status/1786318051052556662)
 
 [(c)](https://x.com/tei03)
