@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=MEOW&abbreviated=true)
 
-[![MICHIKAWA](https://pbs.twimg.com/media/GMpGecPbgAAyW_l?format=png&name=small)](https://x.com/tei03/status/1786318051052556662)
+[![MICHIKAWA](https://cdn.discordapp.com/attachments/868080823214178326/1515634913272139907/AMI.png?ex=6a2fb882&is=6a2e6702&hm=1c2c2d0c9e98cfc0c04977deefc2ffdcc52a5733026690118da0e6a8a2b8e810&)](https://x.com/tei03/status/1786318051052556662)
 
 [(c)](https://x.com/tei03)
 
