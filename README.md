@@ -1,6 +1,6 @@
 <div align="center"> 
 
-![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=战&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=战&abbreviated=true&style=plastic)
 
 [![MICHIKAWA](https://media.discordapp.net/attachments/868080823214178326/1515634913272139907/AMI.png?ex=6a51ff82&is=6a50ae02&hm=6ef20adf918fb9714f6a3aea9a9a2cc05cbf53e057749a00de6c9dd5f286a873&=&format=webp&quality=lossless&width=438&height=438)](https://x.com/tei03/status/1786318051052556662)
 
