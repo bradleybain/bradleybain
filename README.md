@@ -2,9 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=战&abbreviated=true&style=plastic)
 
-[![DARU](https://media.discordapp.net/attachments/868080823214178326/1528027774294687847/Untitled_Square_Pillow.png?ex=6a5cce42&is=6a5b7cc2&hm=ca565a3484b4dd5f0a8a7a06f387d4ef593b51a3259e1e46182725f7705da2b4&=&format=webp&quality=lossless&width=438&height=438)](https://x.com/drm0078/status/1863173017930715386?s=20)
+[![DARU](https://media.discordapp.net/attachments/868080823214178326/1528034539702583346/Untitled_Square_Pillow.png?ex=6a5cd48f&is=6a5b830f&hm=2760f6dace1f068f7a6b606db1c3d6f01ff396c7748c8dfb4bbaac52e89a8d38&=&format=webp&quality=lossless&width=438&height=438)](https://x.com/ttyk_2525/status/1732758075365568537?s=20)
 
-[(c)](https://x.com/drm0078?s=20)
+[(c)](https://x.com/ttyk_2525?s=20)
 
 She/Him prns⠀⸝⠀**Adult**	‎ ![GIN](https://pixels.crd.co/assets/images/gallery68/1445305c.gif?v=99d3974e)⠀؛⠀FIL ★ Lesbian	‎ ![BAM](https://64.media.tumblr.com/c4287d58613b15034a70eebbce9bebb9/558928f97b1d2545-3c/s75x75_c1/929a8c08c9480919e767c3b6f5dd31afe16d24a3.gifv) ![SNOOPY](https://watermelon.crd.co/assets/images/gallery02/68bfed73.gif?v=6332de85) 
 
