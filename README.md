@@ -6,13 +6,13 @@
 
 [(c)](https://x.com/tei03)
 
-She/Him prns	‎ ![GIN](https://pixels.crd.co/assets/images/gallery68/1445305c.gif?v=99d3974e)⠀؛⠀FIL ★ Lesbian	‎ ![BAM](https://64.media.tumblr.com/c4287d58613b15034a70eebbce9bebb9/558928f97b1d2545-3c/s75x75_c1/929a8c08c9480919e767c3b6f5dd31afe16d24a3.gifv) ![SNOOPY](https://watermelon.crd.co/assets/images/gallery02/68bfed73.gif?v=6332de85) 
+She/Him prns⠀⸝⠀**Adult**	‎ ![GIN](https://pixels.crd.co/assets/images/gallery68/1445305c.gif?v=99d3974e)⠀؛⠀FIL ★ Lesbian	‎ ![BAM](https://64.media.tumblr.com/c4287d58613b15034a70eebbce9bebb9/558928f97b1d2545-3c/s75x75_c1/929a8c08c9480919e767c3b6f5dd31afe16d24a3.gifv) ![SNOOPY](https://watermelon.crd.co/assets/images/gallery02/68bfed73.gif?v=6332de85) 
 
 [![ROCKON](https://external-media.spacehey.net/media/sI0VQrDC1DGUVGu8fpQa0jkxDbC4F1ofCXj1BMCxJ7xA=/https://i1.glitter-graphics.org/pub/2792/2792511el0qw5fi93.gif)](https://www.instagram.com/p/CZRedcCJwZG/?igsh=MTcxZGVrbTBoZTNsdQ==)
 
 <details>
 
-<summary><ins>ℑnfo.</ins></ins></summary>
+<summary><ins>ℑnfo.</ins></summary>
 
 Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr.com/4e86ac2609a822fcc0d27b8eb2ff7904/979aeaa541231801-fa/s75x75_c1/572dc7f4234698beac69108dac3c802eaf0823c7.gifv)	‎ Da [basic](https://listography.com/basic_dni) yaddy-yada, -17, 'n what-the-fuck-ever. I'll just block you if you annoy the living shit out my guts ![E](https://pixels.crd.co/assets/images/gallery33/352b57c7.gif?v=99d3974e)
 
