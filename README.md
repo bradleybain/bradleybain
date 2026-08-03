@@ -18,6 +18,6 @@ Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr
 
 </details>
 
-**[![SONADOW](https://supplies.ju.mp/assets/images/gallery14/a9188e60.jpg?v=6a50b904)](https://gekko.atabook.org/)** 
+
 
 
