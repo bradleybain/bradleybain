@@ -1,6 +1,6 @@
 <div align="center"> 
 
-![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=战&abbreviated=true&style=plastic)
+![](https://komarev.com/ghpvc/?username=bradleybain&color=red&label=战&style=plastic)
 
 She/Him prns⠀⸝⠀**Adult**	‎ ![GIN](https://pixels.crd.co/assets/images/gallery68/1445305c.gif?v=99d3974e)⠀؛⠀FIL ★ Lesbian	‎ ![BAM](https://64.media.tumblr.com/c4287d58613b15034a70eebbce9bebb9/558928f97b1d2545-3c/s75x75_c1/929a8c08c9480919e767c3b6f5dd31afe16d24a3.gifv) ![SNOOPY](https://watermelon.crd.co/assets/images/gallery02/68bfed73.gif?v=6332de85) 
 
