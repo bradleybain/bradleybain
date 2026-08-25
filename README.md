@@ -18,6 +18,8 @@ Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr
 
 </details>
 
+![GM](https://cdn.discordapp.com/attachments/1520966890199974044/1541623550371430541/morty.gif?ex=6a8e4450&is=6a8cf2d0&hm=f125dd4866070dbec95c737ef3f3ba4720d0654fe831ebfd99f12aba20819992&)
+
 
 
 
