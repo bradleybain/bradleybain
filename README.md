@@ -17,9 +17,3 @@ Starting off with the Zhan **DNI** criteria	‎ ![KITTY](https://64.media.tumblr
 > Putting this out here as well: In 'n out of Social Media - meaning I'm either gone for months slash years OR I'm on everyday, real cray-cray. I'm critical with the media I consume, I write whatever there is to say and what I absoutely hate 'bout every bit of it. ‎I curse in every sentence I construct 'n may spout out stuff that may strike as odd 'n outta the line but don't take it to heart! This is just how I talk 'n I may come off as aggressive at times but I pinky promise you that I'm pretty easy peasy lemony squeezy to get along with.
 
 </details>
-
-![GM](https://cdn.discordapp.com/attachments/1520966890199974044/1541623550371430541/morty.gif?ex=6a8e4450&is=6a8cf2d0&hm=f125dd4866070dbec95c737ef3f3ba4720d0654fe831ebfd99f12aba20819992&)
-
-
-
-
